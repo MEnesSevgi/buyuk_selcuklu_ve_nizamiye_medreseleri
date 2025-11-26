@@ -1,0 +1,1 @@
+# buyuk_selcuklu_ve_nizamiye_medreseleri
